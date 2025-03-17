@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @santiagowill
-- 👀 I’m interested in ...programação
+- 👀 I’m interested in ...tecnologia  criação de ia 
 - 🌱 I’m currently learning ...programação
 - 💞️ I’m looking to collaborate on ...desevolvimento de aplicativos  
 - 📫 How to reach me ...williansantiago012@gmail.com  
